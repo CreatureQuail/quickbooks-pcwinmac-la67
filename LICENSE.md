@@ -1,4 +1,4 @@
-# 
+# Secure QuickBooks scripts for Mac OS | Premium QuickBooks scripts for PC Windows. Featuring API integration and expense tracking — optimized for maximum performance on every platform.
 
 
 
